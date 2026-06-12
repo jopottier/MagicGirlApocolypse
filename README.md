@@ -10,6 +10,9 @@ Charm-Regular font
 
 HELPFUL RESOURCES:
 https://www.youtube.com/watch?v=0aGBYsrGwm0
+
 https://www.youtube.com/watch?v=VQi8MOFY81g&t=744s
+
 https://www.youtube.com/watch?v=VgrEhg0esCg&t=287s
+
 https://www.youtube.com/watch?v=tlRZlkZ6E_U
